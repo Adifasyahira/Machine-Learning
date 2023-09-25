@@ -1,0 +1,1 @@
+Minngu kesatu
